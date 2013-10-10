@@ -105,8 +105,8 @@ Other events from our affiliates:
 
 ## Craggy Island
 <em>Christen, Doruk, Jhasen, Kalina</em>
-* queen-sized bed in the basement
-* full-size pullout couch in living room
+* queen-sized bed in the basement - Jack, prolly?
+* full-size pullout couch in living room - Manuel, it seems
 
 ##Other Locations?
 * House Longlawn in the northern kingdom has two couches and plentiful floor (misuba, m.robins)
@@ -125,7 +125,7 @@ Other events from our affiliates:
 
 ## -510
 <em>October 12, 1492</em>
-* Cristobal Columbus infects native Americans with diseases; millions die.
+* Cristobal Columbus infects native Americans with diseases, enslaves them and generally is a pretty fucking bad party guest; millions die.
 
 ## -210
 <em>October, 1792</em>
